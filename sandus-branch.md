@@ -1,1 +1,1 @@
-welcome to my hometown
+My favorite restaurant is chat paradise.
